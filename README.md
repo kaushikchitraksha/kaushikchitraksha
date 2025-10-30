@@ -29,4 +29,4 @@
 
 ⭐ Thanks for visiting my GitHub!  
 Let’s connect — I’m always up for AI, code, or coffee ☕  
-Reach me: [LinkedIn](https:/www.linkedin.com/in/chitraksha-sharma) · ✉️ kaushikchitraksha@gmail.com
+
